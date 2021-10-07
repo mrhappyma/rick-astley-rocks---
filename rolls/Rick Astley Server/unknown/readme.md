@@ -1,1 +1,1 @@
-It's unknown who orriginially posted this, as it's been reposted countless times. But we can tell you where: It's the [Rick Astley Discord Server!](https://www.rickastley.rocks/sources/Rick_Astley_Server)
+It's unknown who originally posted this, as it's been reposted countless times. But we can tell you where: It's the [Rick Astley Discord Server!](https://www.rickastley.rocks/sources/Rick_Astley_Server)
